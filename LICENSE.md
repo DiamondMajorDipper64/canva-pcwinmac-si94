@@ -1,4 +1,4 @@
-# 
+# Premium Canva extensions for Mac OS | Smart Canva extensions for PC Windows. Featuring channel-mixer and masking — optimized for maximum performance on every platform.
 
 
 
